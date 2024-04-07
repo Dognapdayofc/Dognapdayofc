@@ -1,0 +1,7 @@
+-  Hello this is the official account of dog napday
+-  I’m interested in making sprites/games
+-  I’m currently learning on how to make 2.5D games
+-  I’m looking to collaborate on random games
+-  How to reach me youtube dognapdayofc 
+-  Pronouns: him
+-  Fun fact: nothing
